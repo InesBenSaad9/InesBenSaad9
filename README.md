@@ -34,8 +34,8 @@ I enjoy transforming ideas into clean, functional, and user-centered products.
 
 -  LinkedIn: [linkedin.com/in/ines-bensaad-b0a226251](https://www.linkedin.com/in/ines-bensaad-b0a226251/)
 -  Behance: [behance.net/inesbensaad](https://www.behance.net/inesbensaad)
--  Instagram: *([instagram.com/inesbensaad](https://www.instagram.com/inesbensaad_/))*
--  Facebook: *([facebook.com/inesbensaad](https://www.facebook.com/ines.bensaad.568)))*
+-  Instagram: [instagram.com/inesbensaad](https://www.instagram.com/inesbensaad_/)
+-  Facebook: [facebook.com/inesbensaad](https://www.facebook.com/ines.bensaad.568)
 
 ---
 
